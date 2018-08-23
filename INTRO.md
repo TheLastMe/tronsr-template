@@ -1,1 +1,1 @@
-A short introduction about your team
+TheLastMe is hoping to leverage the blockchain technology to build an application scenario that can integrate games, and help cryptocurrency to generate landing services. We are helping to promote the rapid adoption of blockchain technology with recreational methods. We have been paying attention to the development of TRON, and have already become an industry leader in many aspects. As far as application development goes, we will be able to play a very important role in helping TRON with landing applications.
